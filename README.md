@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @curtprins
 - 👀 I’m interested in product management--especially within eCommerce, messaging & mobile.
-- 🌱 I’m currently learning how to socialize (Post-COVID).
 - 💞️ I’m looking to collaborate on entrepreneurs and driven developers
 - 📫 How to reach me: Twitter @curtprins
 
